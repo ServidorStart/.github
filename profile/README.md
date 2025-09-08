@@ -1,4 +1,8 @@
-## Hi there 👋
+## Olá!
+
+Em um mundo não muito distante, nos encontraremos novamente.
+
+Obrigado por tudo que vocês fizeram por nós! ❤️
 
 <img width="642" height="66" alt="image" src="https://github.com/user-attachments/assets/f7c4f5c8-517e-4c1e-b92c-eea6388d14ea" />
 
